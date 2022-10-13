@@ -1,1 +1,0 @@
-# mgminprolearnerakar.github.io
